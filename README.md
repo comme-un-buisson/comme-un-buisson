@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @comme-un-buisson
-- LIKE A MIRROR IF YOU COPY ME AND
- -MAKE A COPY OF ME-,IT'S SO FUNNY
-- LOLLLL
+- https://www.google.com/imgres?imgurl=https%3A%2F%2Fi.pinimg.com%2F736x%2F06%2F4c%2F20%2F064c205c5509ce9c1f84fb12ed1a37ca.jpg&tbnid=90o4q49H0iCThM&vet=1&imgrefurl=https%3A%2F%2Fwww.pinterest.com%2Fawesome71%2Fgir%2F&docid=HthDWK8ap_hUYM&w=500&h=512&hl=vi-VN&source=sh%2Fx%2Fim%2Fm1%2F4
   
 
 <!---
